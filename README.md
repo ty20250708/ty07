@@ -16,6 +16,6 @@ JavKing 提供高清的视频，更新及时，用户无需注册即可观看，
 不过，要注意安全性，确保设备有防病毒软件，避免在不安全的网络下观看，保护个人隐私和设备安全。
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/ty20250708/ty07 ）</span>
 
 
